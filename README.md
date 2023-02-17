@@ -1,4 +1,4 @@
-# SN1 SALE PN
-## 06 january 1995
-## salerensal2@gmail.com
+# SN1 pajaron PN
+## 25 0CT 1989
+## PAJIEBAR22@GMAIL.COM
 ## 09100580779
